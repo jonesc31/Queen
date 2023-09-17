@@ -1,1 +1,1 @@
-hi, my name is Cleopatra and I like to hike and spend time in nature.
+I have 2 pets; a cat and a dog
